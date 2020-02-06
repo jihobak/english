@@ -18,3 +18,11 @@ Study English!
   I think Seoul is the major tourist attraction.
   I recomment it to people who want to enjoy modern city but different moods from western city like New York.
   The city is never sleep and very safe as well.
+
+##### 20.02.06
+- He tried to discuss about changing design is also a way to solve the problem.
+- He also highlighted that making new choices that nobody else is looking at is important.
+- I never feel uncomfortable using their products.
+- Don't try to assume quickly.
+- Design thinking is a great tool for optimizing your process
+- Our government is taking incremental steps to fight coronavirus
