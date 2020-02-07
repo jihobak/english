@@ -26,3 +26,9 @@ Study English!
 - Don't try to assume quickly.
 - Design thinking is a great tool for optimizing your process
 - Our government is taking incremental steps to fight coronavirus
+
+##### 20.02.07
+- According to this video a lot of sports are famous in Korea.
+- It's not easy to do kite flying.
+- I haven't seen it yet.
+- No one is doing the folk dancing these days in Korea.
