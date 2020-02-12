@@ -32,3 +32,8 @@ Study English!
 - It's not easy to do kite flying.
 - I haven't seen it yet.
 - No one is doing the folk dancing these days in Korea.
+
+##### 20.02.11
+- He couldn't find other **greeting cards**.
+- Everyone is a **procrastinator** in some ways.
+- Do not be **fooled** by the person who only uses slogans to persuade others.
