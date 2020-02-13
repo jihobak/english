@@ -37,3 +37,9 @@ Study English!
 - He couldn't find other **greeting cards**.
 - Everyone is a **procrastinator** in some ways.
 - Do not be **fooled** by the person who only uses slogans to persuade others.
+
+##### 20.02.12
+- He reminded the people about the climate issue.
+- I believe that's the reason why people like de Caprio.
+- I think this word had already been mentioned in yesterday's class.
+- I think people who are not greedy enough are not likely to succeed.
