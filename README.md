@@ -49,3 +49,9 @@ Study English!
 - I want to visit the place with the Cherry blossom.
 - Honstly, it's my first time to sse this word.
 - I cannot exactly explain the thoughts.
+
+##### 20.02.14
+- She always tries to do somethign that is something adventurous to her.
+- What was she trying to say was to try something adventurous for a change.
+- I think there is nothing spectial about it just some good words.
+- Marry a peron whom you feel comfortable with.
