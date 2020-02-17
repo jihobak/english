@@ -43,3 +43,9 @@ Study English!
 - I believe that's the reason why people like de Caprio.
 - I think this word had already been mentioned in yesterday's class.
 - I think people who are not greedy enough are not likely to succeed.
+
+##### 20.02.13
+- This video introduces the top 10 travel attraction sof Kyoto.
+- I want to visit the place with the Cherry blossom.
+- Honstly, it's my first time to sse this word.
+- I cannot exactly explain the thoughts.
