@@ -65,4 +65,9 @@ Study English!
 - The speaker is a kid.
 - The pig and the cow are on the grassland.
 - The milk from the cow that grazes on fresh grass tastes better.
-- Just like what has been stated on the video.
+- **Just like what has been stated on the video**.
+
+##### 20.02.19
+- They are trying to **win over** versus the machine or computer.
+- Mostly my generation is not familiar with the game Go.
+- I think it's kinda eay to beat A.I
