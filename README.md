@@ -55,3 +55,8 @@ Study English!
 - What was she trying to say was to try something adventurous for a change.
 - I think there is nothing spectial about it just some good words.
 - Marry a peron whom you feel comfortable with.
+
+##### 20.02.17
+- Finally, they **reached** their goal.
+- It's impossible to predict **the** future.
+- Watching Olympic event is not **my cup of tea**.
