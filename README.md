@@ -60,3 +60,9 @@ Study English!
 - Finally, they **reached** their goal.
 - It's impossible to predict **the** future.
 - Watching Olympic event is not **my cup of tea**.
+
+##### 20.02.18
+- The speaker is a kid.
+- The pig and the cow are on the grassland.
+- The milk from the cow that grazes on fresh grass tastes better.
+- Just like what has been stated on the video.
